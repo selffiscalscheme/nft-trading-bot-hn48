@@ -1,4 +1,4 @@
-# 
+# AI-powered nft trading bot | gas-optimization + proxy-transactions is the best nft trading bot, featuring gas-optimization and proxy-transactions. Fast, smart, and optimized for
 
 
 
